@@ -1,1 +1,1 @@
-E2
+Actividad no realizada
