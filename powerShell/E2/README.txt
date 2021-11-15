@@ -1,1 +1,0 @@
-Actividad no realizada
